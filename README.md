@@ -14,7 +14,7 @@
 
 ### 🎵 Tracklist (One-Tap Download)
 
-- [**07. Minerva - Odrishsho Grohoraaj**](https://media.githubusercontent.com/media/GhostDog45/Minerva/master/07.%20Minerva%20-%20Odrishsho%20Grohoraaj%20%28music.com.bd%29.mp3?download=true) &nbsp; [![Download Track](https://img.shields.io/badge/⬇_Download-MP3-2ea44f?style=flat-square&logo=audiomack)](https://media.githubusercontent.com/media/GhostDog45/Minerva/master/07.%20Minerva%20-%20Odrishsho%20Grohoraaj%20%28music.com.bd%29.mp3?download=true)
+- [**Minerva - Odrishsho Grohoraaj**](https://media.githubusercontent.com/media/GhostDog45/Minerva/master/07.%20Minerva%20-%20Odrishsho%20Grohoraaj%20%28music.com.bd%29.mp3?download=true) &nbsp; [![Download Track](https://img.shields.io/badge/⬇_Download-MP3-2ea44f?style=flat-square&logo=audiomack)](https://media.githubusercontent.com/media/GhostDog45/Minerva/master/07.%20Minerva%20-%20Odrishsho%20Grohoraaj%20%28music.com.bd%29.mp3?download=true)
 
 ---
 
